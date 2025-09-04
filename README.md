@@ -1,2 +1,0 @@
-# mcosmetikinuz
-mcosmetik
